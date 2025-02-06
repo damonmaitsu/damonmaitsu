@@ -14,7 +14,7 @@
 <p align=center> •─────⋅🖊️⋅─────•</p>
 
 
-<p align=center> <a href="https://ezraxp.straw.page/">𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚</a></p>
+<p align=center> <a href="https://5cbenstone.straw.page/">𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚</a></p>
 
 <p align=center> <a href="https://ult-rebel.carrd.co">𝙘𝙖𝙧𝙧𝙙</a></p>
 
